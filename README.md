@@ -15,6 +15,9 @@ https://goo.gl/maps/oY31CoSFJEwNQ1Lh8
 - Rosenstein Vendéglő
 https://goo.gl/maps/1GyPordkyJATufVYA
 
+![alt text](https://img.theculturetrip.com/wp-content/uploads/2014/08/porkolt.jpg)
+Try Marhapörkölt!
+
 ## Cafes and sweets
 - Café Gerbeaud
 Budapest, Vörösmarty tér 7-8, 1051 Hungary
@@ -34,6 +37,10 @@ https://goo.gl/maps/HxdLiBqxdfYr2H9Z8
 - New York Café
 Budapest, Erzsébet krt. 9-11, 1073 Hungary
 https://goo.gl/maps/z1NHMNRk7Th9kbCF8
+
+![alt text](https://i.pinimg.com/originals/da/f5/a0/daf5a05963243527f811616aff839517.jpg)
+
+Cafe Cental
 
 
 ## Bars and clubs
@@ -56,6 +63,9 @@ https://goo.gl/maps/cqA98W3K9tooABry8
 Budapest, Akácfa u. 49, 1073 Hungary
 https://goo.gl/maps/zRKbNVPYUZXft9Y38
 
+![alt text](https://i.pinimg.com/originals/6b/a3/87/6ba38789a088c168ff1971996d47bed9.jpg)
+
+Fogasház
 
 ## Baths
 - Rudas Baths
@@ -64,6 +74,10 @@ https://goo.gl/maps/DoX56i9fVA2fB7k68
 - Széchenyi Thermal Bath
 Budapest, Állatkerti krt. 9-11, 1146 Hungary
 https://goo.gl/maps/Ca22kf6BgjTQD54Y8
+
+![alt text](https://www.lanchid19hotel.com/wp-content/uploads/2014/12/9354_1024.jpg)
+
+Rudas bath
 
 ## Other
 - UrbanGo Treasure Hunting Budapest - City Adventure & Sights in One!
