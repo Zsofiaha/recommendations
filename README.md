@@ -59,6 +59,9 @@ https://goo.gl/maps/zRKbNVPYUZXft9Y38
 - Rudas Baths
 Budapest, Döbrentei tér 9, 1013 Hungary
 https://goo.gl/maps/DoX56i9fVA2fB7k68
+- Széchenyi Thermal Bath
+Budapest, Állatkerti krt. 9-11, 1146 Hungary
+https://goo.gl/maps/Ca22kf6BgjTQD54Y8
 
 ## Other
 - UrbanGo Treasure Hunting Budapest - City Adventure & Sights in One!
