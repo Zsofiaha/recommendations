@@ -14,7 +14,7 @@ https://goo.gl/maps/oY31CoSFJEwNQ1Lh8
 https://goo.gl/maps/1GyPordkyJATufVYA
 
 ## Cafes and sweets
--Café Gerbeaud
+- Café Gerbeaud
 Budapest, Vörösmarty tér 7-8, 1051 Hungary
 https://goo.gl/maps/dK5oxiwSdgndgt2y5
 - Molnár's kürtőskalács
